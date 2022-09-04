@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kunal808080
 - 👀 I’m interested in singing, programing with java,HTML,c etc.
-- 🌱 I’m currently learning java
+- 🌱 I’m currently pursuing btech in cse
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me wp- 7846944955
 
